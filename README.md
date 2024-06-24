@@ -1,4 +1,5 @@
 **This is a crying cat's personal page** <br>
   Books to read: <br>
   Intelligent Investor <br>
-  Writing Without Bullshit
+  Writing Without Bullshit <br>
+  China in One Village <br>
