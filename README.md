@@ -8,7 +8,7 @@
   Basketball <br>
   Ping Pong <br>
   Chess <br>
-##3. **Photography** <br>
-  China
-  US
+##3. **Photography & Stories** <br>
+  China <br>
+  US <br>
 ##4. **Self improvement** <br>
