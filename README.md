@@ -1,4 +1,4 @@
-**This is a crying cat's personal page** <br>
+**This is a door to get to know Amy** <br>
 
 1.  **Books to read**: <br>
   Intelligent Investor <br>
