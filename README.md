@@ -1,4 +1,4 @@
-**This is a door to get to know Amy** <br>
+**** <br>
 
 1.  **Books to read**: <br>
   Intelligent Investor <br>
